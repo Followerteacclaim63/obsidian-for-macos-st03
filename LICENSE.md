@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Obsidian for macOS integration with best Integration for Obsidian for macOS - auto-sync and AI assistant. Featuring auto-sync and AI assistant, it's the best
 
 
 
